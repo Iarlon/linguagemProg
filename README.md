@@ -1,0 +1,1 @@
+A segunda eu deixei de fazer pois achei muito grande, infelizmente deixei para cima da hora e decidi por deixar de fazê-la. Até com ajuda do meu amigo chatGPT eu apanhei, podia copiar do chat, porém não entendi nada do que ele criou e é muito avançado para o que aprendemos em sala.
